@@ -2,7 +2,7 @@
 
 Looking for an exciting and action-packed sports game? **Football Bros Unblocked** is here to bring you thrilling gameplay where you can enjoy fast-paced football matches right in your browser. Whether you're at school, work, or just want a quick gaming session, this game provides endless fun without restrictions!
 
-## <a href="https://classroom-6x-cool.gitlab.io/sports.html">👉 Football Bros Unblocked 👈</a>
+## <a href="https://izigames.net">👉 Football Bros Unblocked 👈</a>
 
 ![football bros online](https://github.com/user-attachments/assets/5ecfb609-a882-4a57-bc52-2084acd7ae2e)
 
